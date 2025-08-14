@@ -19,10 +19,5 @@ Where you can learn about FiftyuanScience’s latest products and purchase them.
 
 **Thank you for your support.**
 
-FiftyuanScience will launch even better products.
-|     Sponsor        | Sponsorship amount   |
-|  我系伍拾园     |         RMB 50                |
-|          乔治         |   RMB?帮我拿快递      |
-|           易            |         RMB 50                |
 
 **end！！！**
